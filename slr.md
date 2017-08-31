@@ -1,11 +1,11 @@
 
 
-#over Jeroen
+#over samed en redouan
 
-**Voornaam:** Jeroen
+**Voornaam:** samed en redouan
 
-**Achternaam:** Slemmer
+**Achternaam:** ahmetovic en sellami
 
-**E-mail adres:** [Jeroen Slemmer](jslemmer@davinci.nl)
+**E-mail adres:** (samed) Samed01@hotmail.nl   (redouan)   redouan778@gmail.com
 
-**Telefoon:** 0612345678
+**Telefoon:** (samed) 0623830887  (redouan) 0685872148
